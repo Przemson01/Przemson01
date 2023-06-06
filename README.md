@@ -1,3 +1,3 @@
 - 👋 Hi, I’m @Przemson01
-- 🫡 I'm currently learning in Prywatne Technikum informatyczne.
-- 📫 How to reach me: just contact on byczekprzemo16@gmail.com
+- 🫡 I graduated Prywatne Technikum informatyczne.
+- 📫 How to reach me? Just contact on byczekprzemo16@gmail.com
