@@ -1,3 +1,3 @@
 - 👋 Hi, I’m @Przemson01
-- 🫡 I graduated Prywatne Technikum informatyczne.
-- 📫 How to reach me? Just contact on byczekprzemo16@gmail.com
+- 👨🏻‍💻 I work as an IT specialist in a cosmetics company.
+- 📫 How to reach me? Just contact przemekszuflat@hotmail.com
