@@ -1,3 +1,3 @@
 - 👋 Hi, I’m @Przemson01
-- 👨🏻‍💻 I work as an IT specialist in a cosmetics company.
+- 👨🏻‍💻 I work as an IT specialist.
 - 📫 How to reach me? Just contact przemekszuflat@hotmail.com
